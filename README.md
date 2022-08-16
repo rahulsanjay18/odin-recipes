@@ -1,1 +1,0 @@
-Its the thing for Odin Project
